@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @PhilcoinCEO
-- 👀 I’m looking forward to all your work
+- 👀 I’m looking forward to all your work in changing the way giving happens around the world
 - 🌱 I’m currently learning how to see and watch everyones coding behaviour
 - 💞️ do not mind my language expressions 
-- 📫 Hyou can reach me @ jerry lopez@philcoin.io
+- 📫 Hyou can reach me @ jerrylopez@philcoin.io
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 
